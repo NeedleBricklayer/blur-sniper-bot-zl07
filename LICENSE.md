@@ -1,4 +1,4 @@
-# 
+# Get the ultimate blur sniper bot with vip blur sniper bot | auto-sell + multi-wallet-support. Featuring auto-sell and multi-wallet-support, it's the best choice for automated NFT
 
 
 
